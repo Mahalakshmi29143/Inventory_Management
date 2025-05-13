@@ -97,8 +97,8 @@ From task assignments and progress tracking to reward unlocks and spin-wheel bon
 
 If you'd like to contribute, collaborate or have questions:
 
-📧 stephybless11@gmail.com  
-🔗 [GitHub: @StephyBless](https://github.com/StephyBless)
+📧 sgmm6580@gmail.com 
+🔗 [GitHub: @Mahalakshmi](https://github.com/Mahalakshmi29143)
 
 ---
 
